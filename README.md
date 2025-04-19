@@ -9,4 +9,4 @@ Actualmente soy estudiante de la carrera **Ingeniería en Sistemas de Informaci�
 
 ![isaac](https://github.com/user-attachments/assets/d605d130-8725-44da-812a-31cf5505a422)
 
-Mi materia favorita por ahora fue Algoritmos y Estructura de Datos, pero también me parece importante hacer una mención hororífica a Ingeniería y Sociedad (Infravalorada)
+Mi materia favorita por ahora fue Algoritmos y Estructura de Datos, pero también me parece importante hacer una mención honorífica a Ingeniería y Sociedad (Infravalorada)
